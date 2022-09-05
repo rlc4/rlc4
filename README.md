@@ -6,7 +6,7 @@
 - 📫 How to reach me?  Drop me a notification here somehow is likely the best
 
 
-## Liberal Minded:
+## Liberal Minded
 - Black Lives Matter.
 - Scienace is Real.
 - Love is Love.
